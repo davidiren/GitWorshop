@@ -14,7 +14,6 @@ And he began to speak
 He said, "Son, I've made a life
 Out of readin' people's faces
 Knowin' what the cards were
-
 By the way they held their eyes
 So if you don't mind my sayin'
 I can see you're out of aces
@@ -23,7 +22,6 @@ I'll give you some advice"
 
 So I handed him my bottle
 And he drank down my last swallow
-
 Then he bummed a cigarette
 And asked me for a light
 And the night got deathly quiet
