@@ -10,6 +10,7 @@ So we took turns a-starin'
 Out the window at the darkness
 The boredom overtook us
 And he began to speak
+
 He said, "Son, I've made a life
 Out of readin' people's faces
 Knowin' what the cards were
@@ -18,6 +19,7 @@ So if you don't mind my sayin'
 I can see you're out of aces
 For a taste of your whiskey
 I'll give you some advice"
+
 So I handed him my bottle
 And he drank down my last swallow
 Then he bummed a cigarette
@@ -26,6 +28,7 @@ And the night got deathly quiet
 And his face lost all expression
 Said, "If you're gonna play the game, boy
 You gotta learn to play it right
+
 You've got to know when to hold 'em
 Know when to fold 'em
 Know when to walk away
@@ -34,6 +37,7 @@ You never count your money
 When you're sittin' at the table
 There'll be time enough for countin'
 When the dealin's done
+
 Every gambler knows
 That the secret to survivin'
 Is knowin' what to throw away
@@ -42,6 +46,7 @@ And knowin' what to keep
 And every hand's a loser
 And the best that you can hope for
 Is to die in your sleep"
+
 And when he'd finished speakin'
 He turned back toward the window
 Crushed out his cigarette
@@ -50,6 +55,7 @@ And somewhere in the darkness
 The gambler he broke even
 But in his final words
 I found an ace that I could keep
+
 You've got to know when to hold 'em
 Know when to fold 'em
 Know when to walk away
@@ -58,6 +64,7 @@ You never count your money
 When you're sittin' at the table
 There'll be time enough for countin'
 When the dealin's done
+
 You've got to know when to hold 'em (when to hold 'em)
 Know when to fold 'em (when to fold 'em)
 Know when to walk away
@@ -66,6 +73,7 @@ You never count your money
 When you're sittin' at the table
 There'll be time enough for countin'
 When the dealin's done
+
 You've got to know when to hold 'em
 Know when to fold 'em
 Know when to walk away
